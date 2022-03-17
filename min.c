@@ -1,5 +1,0 @@
-ssssq
-wq
-:wq
-i
-
